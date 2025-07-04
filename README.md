@@ -14,7 +14,7 @@ Come Say Hi!
 - 📷 [Instagram](https://www.instagram.com/_raeground_/)  
 - ▶️ [YouTube](https://www.youtube.com/@raekam-ksh)
 - 📷 [Threads](https://www.threads.com/@_raeground_)
-- 🐱 [My Code Projects](https://github.com/kamsiewhui/30-day-python-challenge)
+- 🐱 [My Code Projects](https://github.com/kamsiewhui)
 - Email: raekam2022@gmail.com
 
 ---
