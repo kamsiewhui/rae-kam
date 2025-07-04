@@ -1,10 +1,12 @@
 # 👋 Hi, I’m Rae.  
 Or Kam Siew Hui, if you know me by my full name 😉.
 
-🎓 Engineering student juggling school, side quests, and hobbies
+🎓 Engineering student juggling school, side quests, and hobbies。
+
 🎯 Now: IC design | Machine Learning | Side Projects | 30-day posting challenge 
+
 🧪 Following curiosity — wherever it leads.  
-🎨 Challenging my **creativity**, ideas, and sense of humor
+🎨 Challenging my **creativity**, ideas, and sense of humor。
 
 ---
 
