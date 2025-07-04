@@ -6,6 +6,7 @@ Or Kam Siew Hui, if you know me by my full name 😉.
 🎯 Now: IC design | Machine Learning | Side Projects | 30-day posting challenge 
 
 🧪 Following curiosity — wherever it leads.  
+
 🎨 Challenging my **creativity**, ideas, and sense of humor。
 
 ---
